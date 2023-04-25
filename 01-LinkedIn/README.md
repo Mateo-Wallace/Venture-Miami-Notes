@@ -41,3 +41,11 @@ Would you be willing to share any info on the position, the team, and what they 
 ### Connecting with recruiters
 
 Dont wait for a hiring manager to respond to a message, apply first, message the hr, get switched to another interview path
+
+
+## Linkedin Learning
+
+opportunity.linkedin.com
+
+Soft skills matter. Highlight team skills and emotional skills, on top of technical skills
+
